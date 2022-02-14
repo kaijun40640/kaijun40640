@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kaijun40640
-- 👀 That new kid on the block
+- 👀 Watch this space
 - 🌱 I'm currently learning computer science and business
 - 💞️ I’m looking to collaborate on any interesting projects
 - 📫 How to reach me @kaijun40640
